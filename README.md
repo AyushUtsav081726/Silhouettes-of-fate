@@ -11,3 +11,7 @@
 ## Link of purchase
 
 #### Amazon: https://amzn.in/d/7H0S2Wa
+
+#### Flipkart: https://www.flipkart.com/silhouettes-of-fate/p/itm417401ac6eac1
+
+#### NotionPress: https://notionpress.com/in/read/silhouettes-of-fate
