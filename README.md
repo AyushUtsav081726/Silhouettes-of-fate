@@ -7,3 +7,7 @@
 ![Image](https://github.com/user-attachments/assets/e10e4b06-9f7a-421f-ae64-4db80c64446c)
 
 ![Image](https://github.com/user-attachments/assets/3876f881-de80-4c96-b3de-76603ba7c96f)
+
+## Link of purchase
+
+#### Amazon: https://amzn.in/d/7H0S2Wa
